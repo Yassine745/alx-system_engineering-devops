@@ -1,1 +1,1 @@
-Project of this day is nothing
+|Project of this day is nothing
